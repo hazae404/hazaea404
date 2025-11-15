@@ -1,4 +1,4 @@
-# hazaea404# 💫 About Me:
+# 💫 About Me:
 Hazaea Aljabery<br>Web & Software Developer | GitHub Projects Designer
 
 
